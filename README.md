@@ -1,2 +1,3 @@
 # Script-no-key
 BLOX FRUITS SCRIPT (AUTO FARM, MASTERY, AUTO RAID) | BEST ROBLOX HACK - PASTEBIN | NO KEY!
+https://scriptnokey.com/
